@@ -1,0 +1,1 @@
+# AI-Russification-of-the-POOLS-game-logo-and-covers.
